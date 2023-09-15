@@ -27,6 +27,6 @@ This achievement is a testament to the relentless dedication of our exceptional 
 
 ## Social Media
 Follow our journey on social media:
-- LinkedIn: https://www.linkedin.com/in/tharindu-manoj-thilakarathna-1917601a7/
+- LinkedIn: https://www.linkedin.com/in/isuru-jayalath-773782244/
 
 Let's continue to make strides in shaping a safer and more efficient mining industry.
